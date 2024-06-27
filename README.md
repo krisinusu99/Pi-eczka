@@ -1,0 +1,1 @@
+Symulacja  piłeczki
